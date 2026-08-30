@@ -66,4 +66,4 @@ Worked on:
 
 ## 📫 Connect With Me
 
-- LinkedIn: [Add your LinkedIn profile here]
+- LinkedIn: www.linkedin.com/in/rishav-dutta-5549b4368
